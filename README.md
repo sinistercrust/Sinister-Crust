@@ -1,2 +1,0 @@
-# Sinister-Crust
- This is my side hobby where I share unique, original stories that I’ve written and edited myself. My goal is to share what I love with others while constantly improving my storytelling and video editing skills. I hope you enjoy the content!
